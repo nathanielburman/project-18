@@ -5,7 +5,7 @@ Project 18 and sexual reproduction with statehood bias and permitting sexual hea
 
 2. adulthood begins somewhere at puberty
 
-3, adulthood endes somewhere around 24-27 yesrs scientifically
+3. adulthood endes somewhere around 24-27 yesrs scientifically
 
 4. therefore, a range of ages works better ie (13 - 24)
 
